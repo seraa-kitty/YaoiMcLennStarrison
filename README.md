@@ -1,2 +1,1 @@
-# YaoiMcLennStarrison
-i want yaoi. 
+—— Sʜᴇʀʀʏʏ ♥ Sᴛᴀʏ Gᴏʟᴅ —
